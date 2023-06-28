@@ -19,3 +19,8 @@ Thats AWESOME about your new tattoo, what are you planning on getting?<br>
 Thank you so much bro, I really can't wait to move and <br> your good vibes mean a lot to me. For my tattoo I'm getting <br> the first part in a series of tattoos I'm doing this summer, and the one <br> on Sunday is going to be a cupid on my stomach with my <br> face from when i was a baby on it <br>
 
 Do you have tattoos?
+
+That sounds so dope! Tattoo therapy is a real thing, plus its a form of self-care to add and create more beautiful art. I am excited for you!!!<br>
+Yes, I have 6 tattoos, my most recent one is of my mom's last heartbeat, with a purple butterfly, and a semi-colon as a reminder to keep going.
+
+How many tattoos do you currently have?
