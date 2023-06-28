@@ -48,3 +48,5 @@ It does look super cool. I got it done almost 20 years ago lol damn time is real
 Yes, the astrology reading and chart, I was born June 10, 1985 @ 1:49pm I believe.
 
 We need to schedule that!!!
+
+Yes !! Let's schedule it right now lol. You free after class next Wednesday?
