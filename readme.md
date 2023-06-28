@@ -24,3 +24,6 @@ That sounds so dope! Tattoo therapy is a real thing, plus its a form of self-car
 Yes, I have 6 tattoos, my most recent one is of my mom's last heartbeat, with a purple butterfly, and a semi-colon as a reminder to keep going.
 
 How many tattoos do you currently have?
+
+that's so beautiful! i love tattoos and have many that i've gotten and <br> done myself. I have 17 tattoos right now, lol. Do you want more? I like your lip piercing a lot and am thinking about getting the same one
+
