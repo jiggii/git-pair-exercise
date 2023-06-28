@@ -27,3 +27,6 @@ How many tattoos do you currently have?
 
 that's so beautiful! i love tattoos and have many that i've gotten and <br> done myself. I have 17 tattoos right now, lol. Do you want more? I like your lip piercing a lot and am thinking about getting the same one
 
+That's a nice amount. I definitely do want more, I want to get a hand piece here in the near future, so I have been contemplating designs and placement. <br>You should totally get it, its called a "vertical Labre" it was very painful though, since it goes through the meat of your lip.<br>
+
+How long ago was your last tattoo?
