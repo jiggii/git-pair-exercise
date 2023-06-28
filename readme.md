@@ -42,3 +42,9 @@ see what designs are recommended by your chart! My last tattoo <br>
 was in May. 
 
 When's your birthday?
+
+It does look super cool. I got it done almost 20 years ago lol damn time is really flying by. Its painful, but most body mods are to some extent. <br> So you are on the Tattoo Train.... they can be so addiciting and theraputic. <br>
+
+Yes, the astrology reading and chart, I was born June 10, 1985 @ 1:49pm I believe.
+
+We need to schedule that!!!
