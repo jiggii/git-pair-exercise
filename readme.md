@@ -30,3 +30,15 @@ that's so beautiful! i love tattoos and have many that i've gotten and <br> done
 That's a nice amount. I definitely do want more, I want to get a hand piece here in the near future, so I have been contemplating designs and placement. <br>You should totally get it, its called a "vertical Labre" it was very painful though, since it goes through the meat of your lip.<br>
 
 How long ago was your last tattoo?
+
+damn!! it hurts bad? lol i need to think about it, <br> 
+i have my medusa and that was okay, but the vertical <br>
+labret looks so cool. 
+
+I have a hand tattoo I'm finishing and 2 knuckle tattoos, <br>
+it's an interesting area to get tattooed. I know I still <br>
+have to do your astrology reading, it would be cool to <br>
+see what designs are recommended by your chart! My last tattoo <br>
+was in May. 
+
+When's your birthday?
